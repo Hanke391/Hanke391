@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋IM Martin H Stephan and im learning lost and I probably have lots of projets i just don't know what to look for or what they look like 
 
 <!--
 **Hanke391/Hanke391** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
